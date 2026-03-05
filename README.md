@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Jeffrey Emelike
 
-🚀 Aspiring Software Engineer | 🎯 Future Tech Mogul | 🧠 Lifelong Learner from Nigeria
+🚀 Software Engineer | 🎯 Tech Mogul | 🧠 Lifelong Learner from Nigeria
 
 ---
 
